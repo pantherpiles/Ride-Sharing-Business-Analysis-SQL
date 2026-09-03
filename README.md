@@ -165,6 +165,4 @@ Analyzed monthly trends based on:
 
 Aspiring Data / Business Analyst
 
-**Janvi**
 
-Aspiring Data / Business Analyst
